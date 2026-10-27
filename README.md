@@ -1,4 +1,4 @@
-# Assalamu'alaikum, Saya Saprudin, S.Ag (Safr) 👋
+# Assalamu'alaikum, Saya Saprudin, S.Ag (Safr) 
 
 **Guru Al-Qur'an Hadis &bull; Kreator Solusi Digital Madrasah &bull; Pembelajar AI**
 
